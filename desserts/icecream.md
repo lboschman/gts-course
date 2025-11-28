@@ -1,1 +1,2 @@
-Go to the store, and but icecream
+Oliebollen are great with icecream
+Go to the store, and buy icecream
